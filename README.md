@@ -1,5 +1,4 @@
 
-
 # A-CRM-Application-for-schools-and-colleges
 Team leader: https://trailblazer.me/id/aravi27
 Member 1:https://trailblazer.me/id/aarivazhagan2
